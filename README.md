@@ -1,1 +1,1 @@
-Hello my name is Jenny and I want Spring
+Hello my name is Jenny and I want Spring. And my name is Stefanie, and I want four seasons.
